@@ -1,4 +1,4 @@
-# 
+# premium nft sniper bot addons is the best nft sniper bot addons with whitelist-bypass and royalty-calculator. Safe, reliable, and optimized for NFT sniper, trading, and arbitrage
 
 
 
